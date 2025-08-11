@@ -2,7 +2,7 @@
 - 👀 I’m interested in Graphics Design,AI,Web Development
 - 🌱 I’m currently learning BCA,basics things about computer,MLCU
 - 💞️ I’m looking to collaborate on coding
-- 📫 IG- _ec9theow_
+- 📫 IG- _wilharth_
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: ...
 
